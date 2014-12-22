@@ -36,8 +36,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-1. EGYPTS FAVORITE.
-
 1. THE STATIONER to the READER.
 
 #####Body#####
